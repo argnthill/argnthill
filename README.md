@@ -12,6 +12,8 @@ hiiii im mike or any other name in my prns page (u can also js call me any name 
 
 . pls also read my rentry + other links
 
+. free c + h js be aware i might b awkward !!
+
 MAIN INTERESTS RN :P
 
 . jackass movies
