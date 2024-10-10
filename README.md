@@ -4,6 +4,8 @@ hiiii im mike or any other name in my prns page (u can also js call me any name 
 
 . he / him only please
 
+. c + h friendly js be aware i might b awkward !!
+
 . im barely on pt so if u catch me online feel free 2 ask 4 my disc / other socials
 
 . pls don't be scared 2 int w me i might js be a bit awkward
@@ -12,7 +14,6 @@ hiiii im mike or any other name in my prns page (u can also js call me any name 
 
 . pls also read my rentry + other links
 
-. free c + h js be aware i might b awkward !!
 
 MAIN INTERESTS RN :P
 
