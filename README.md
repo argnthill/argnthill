@@ -1,6 +1,6 @@
 INFO :)
 
-hiiii im mike or any other name in my prns page (u can also js call me any name you'd like) !! ^__^
+hiiii im mike or any other name in my rentry (u can also js call me any name you'd like) !! ^__^
 
 . he / him only please
 
