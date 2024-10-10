@@ -30,3 +30,7 @@ PLS DRAW IN MY STRAWPAGE OR SAY SMTH ! I APPRECIATE IT A LOTT
 
 pls bmf i can be a bit awkward at first but i tend 2 open up fast
 
+
+![image](https://github.com/user-attachments/assets/7e898c3d-d1d0-42c5-bef9-827ab5c04cd8)
+
+art by hall_h9rny on twt
