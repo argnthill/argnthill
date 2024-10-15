@@ -19,11 +19,11 @@ hiiii im mike or any other name in my rentry (u can also js call me any name you
 
 MAIN INTERESTS RN :P
 
-. jackass movies
+. jackass movies (spinterest)
 
-. brokeback mountain
+. brokeback mountain (spinterest)
 
-. httyd
+. httyd (spinterest)
 
 . sprunki
 
@@ -34,6 +34,8 @@ IF I WANT U 2 DNI OR U BRING UP SMTH IM UNCOMFY W ILL LYK !!
 PLS DRAW IN MY STRAWPAGE OR SAY SMTH ! I APPRECIATE IT A LOTT
 
 pls bmf i can be a bit awkward at first but i tend 2 open up fast
+
+PLS DONT SAY U LIKE MY SPINTERESTS MORE THAN ME TO MY FACE ... i will be rude by impulse 
 
 
 ![image](https://github.com/user-attachments/assets/7e898c3d-d1d0-42c5-bef9-827ab5c04cd8)
