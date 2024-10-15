@@ -6,6 +6,8 @@ hiiii im mike or any other name in my rentry (u can also js call me any name you
 
 . c + h friendly js be aware i might b awkward !!
 
+. i actually prefer c + h to sitting by myself so pls don't hesitate
+
 . im barely on pt so if u catch me online feel free 2 ask 4 my disc / other socials
 
 . pls don't be scared 2 int w me i might js be a bit awkward
